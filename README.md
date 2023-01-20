@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Emil
 - 👀 I’m interested in videogames, gym, motorcycling, skiing and IT 
-- 🌱 I’m currently learning to become bachelor of communication and information technology engineer.
+- 🌱 I’m currently learning to become communication and information technology engineer.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me? emil.lehikoinen@outlook.com
 
